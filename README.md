@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @steelelm
+- 👀 I’m interested in wellness and tech
+- 🌱 I’m currently learning how to use an instapot
+- 💞️ I’m looking to collaborate on operations and project managment
+- 📫 How to reach me I'm on FB and IG
